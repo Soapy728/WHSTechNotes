@@ -7,3 +7,6 @@ i enjoy playing roblox bear alpha its fun and awesome thats all i have to say :o
 
 # September 12, 2024
 tried to figure out how to work unity 
+
+# September 17, 2024
+uhh hi :o] 
