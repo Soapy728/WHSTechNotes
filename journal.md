@@ -10,3 +10,6 @@ tried to figure out how to work unity
 
 # September 17, 2024
 uhh hi :o] 
+
+# September 23, 2024
+today i was learning how to use Unity :o] 
