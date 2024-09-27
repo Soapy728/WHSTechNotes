@@ -13,3 +13,6 @@ uhh hi :o]
 
 # September 23, 2024
 today i was learning how to use Unity :o] 
+
+# September 27, 2024
+learning how to use unity :o] 
