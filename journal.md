@@ -16,3 +16,6 @@ today i was learning how to use Unity :o]
 
 # September 27, 2024
 learning how to use unity :o] 
+
+# October 1 2024
+stuff on blender :oP
