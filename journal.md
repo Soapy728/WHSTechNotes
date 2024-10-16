@@ -19,3 +19,6 @@ learning how to use unity :o]
 
 # October 1, 2024
 stuff on blender :oP
+
+# October 16, 2024
+did stuff on blender :oP
