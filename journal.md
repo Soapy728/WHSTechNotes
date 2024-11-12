@@ -25,3 +25,6 @@ did stuff on blender :oP
 
 # October 30, 2024
 stuff on blender
+
+# November 12, 2024
+making stuff on blender
