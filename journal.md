@@ -31,3 +31,6 @@ making stuff on blender
 
 # November 18, 2024
 helped farmers to produce more food with less labor
+
+# December 2, 2024
+i think ai will replace our jobs and other stuff its scary :0( 
