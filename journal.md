@@ -34,3 +34,6 @@ helped farmers to produce more food with less labor
 
 # December 2, 2024
 i think ai will replace our jobs and other stuff its scary :0( 
+
+# December 10, 2024
+the term brain rot means saying stuff from tiktok or other stuff  
