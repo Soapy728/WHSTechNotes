@@ -37,3 +37,6 @@ i think ai will replace our jobs and other stuff its scary :0(
 
 # December 10, 2024
 the term brain rot means saying stuff from tiktok or other stuff  
+
+# January 8, 2025
+i enjoy drawing a lot :0) 
