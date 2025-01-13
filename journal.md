@@ -39,4 +39,7 @@ i think ai will replace our jobs and other stuff its scary :0(
 the term brain rot means saying stuff from tiktok or other stuff  
 
 # January 8, 2025
-i enjoy drawing a lot :0) 
+i enjoy drawing a lot :0)
+
+# January 13, 2025
+i think using AI is just being lazy 
