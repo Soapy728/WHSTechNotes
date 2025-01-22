@@ -43,3 +43,6 @@ i enjoy drawing a lot :0)
 
 # January 13, 2025
 i think using AI is just being lazy 
+
+# January 22, 2025
+tiktok getting banned was probably something that changed someone
