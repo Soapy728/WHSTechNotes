@@ -46,3 +46,6 @@ i think using AI is just being lazy
 
 # January 22, 2025
 tiktok getting banned was probably something that changed someone
+
+# February 3, 2025
+Researchers create a trajectory-planning system that enables drones working together in the same airspace to always choose a safe path forward.
