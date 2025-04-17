@@ -49,3 +49,6 @@ tiktok getting banned was probably something that changed someone
 
 # February 3, 2025
 Researchers create a trajectory-planning system that enables drones working together in the same airspace to always choose a safe path forward.
+
+# April 17, 2025
+how they did ban phones from school how would their parents know if they are save
