@@ -52,3 +52,6 @@ Researchers create a trajectory-planning system that enables drones working toge
 
 # April 17, 2025
 how they did ban phones from school how would their parents know if they are save
+
+# May 5, 2025
+i think the goilla could win because its stonge
