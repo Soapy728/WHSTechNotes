@@ -58,3 +58,6 @@ i think the goilla could win because its stonge
 
 # September 2, 2025
 i think the cell phone law is stupid cause how are we gonna let our loves know that we are safe what if something bad happens and we need to tell a parent but we cant and at the same time the law helps us work more
+
+# September 8, 2025
+i think computer science could help me with becoming a game dev cause i wanna make games with my girlfirend 
