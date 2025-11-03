@@ -64,3 +64,6 @@ i think computer science could help me with becoming a game dev cause i wanna ma
 
 # September 30, 2025
 67 express to say "dont care" or "or what?"
+
+# November 3, 2025
+coding can be hard to learn and you will get better at it like me
