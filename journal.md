@@ -67,3 +67,6 @@ i think computer science could help me with becoming a game dev cause i wanna ma
 
 # November 3, 2025
 coding can be hard to learn and you will get better at it like me
+
+# November 17, 2025
+i can't for thanksgiving because i can relax and spend time with family
