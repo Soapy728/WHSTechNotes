@@ -73,3 +73,6 @@ i can't for thanksgiving because i can relax and spend time with family
 
 # December 8, 2025
 i think self driving is very unsafe
+
+# January 6, 2026
+i did not really that much but talking to my girlfriend all day ^_^
