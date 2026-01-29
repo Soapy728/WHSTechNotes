@@ -79,3 +79,6 @@ i did not really that much but talking to my girlfriend all day ^_^
 
 # january 9, 2025 
 https://docs.google.com/document/d/1_Meq4vNl-594j_snq23KsrBj-OVx2f4qYjr6RHVwiIM/edit?tab=t.0
+
+# January 29, 2025
+i take the map test and i had to rush because my chromebook was gonna die
