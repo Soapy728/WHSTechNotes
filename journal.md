@@ -82,3 +82,6 @@ https://docs.google.com/document/d/1_Meq4vNl-594j_snq23KsrBj-OVx2f4qYjr6RHVwiIM/
 
 # January 29, 2025
 i take the map test and i had to rush because my chromebook was gonna die
+
+# April 16, 2026
+modern space technology is enough missions to sucess 
